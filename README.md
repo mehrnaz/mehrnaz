@@ -1,5 +1,5 @@
 ### 
-- 🔭 I’m a Curious gal. Almost always looking 4 coffee adderal or food.
+- 🔭 I’m a Curious gal. Almost always high on adderall, coffee or pizza.
 - 💬 Ask me about? nothing! I don really like questions :( specially the ones I don have an answer 4.
 - 📫 How to reach me: mehrnaz#1283 @discord
 - 😄 Pronouns: she :">
