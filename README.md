@@ -1,6 +1,6 @@
 ### 
-- 🔭 I’m a Curious gal. Almost always high on adderall, coffee or pizza.
-- 💬 Ask me about? nothing! I don really like questions :( specially the ones I don have an answer 4.
+- 🔭 Curious gal. Almost always high on coffee/pizza.
+- 💬 Ask me about my ADHD
 - 📫 How to reach me: mehrnaz#1283 @discord
 - 😄 Pronouns: she :">
 - ⚡ Fun fact: Rictusempra
