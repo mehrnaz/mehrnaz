@@ -1,6 +1,5 @@
 ### 
 - 🔭 Curious gal. Almost always high on coffee/pizza.
-- 💬 Ask me about my ADHD
 - 📫 How to reach me: mehrnaz#1283 @discord
 - 😄 Pronouns: she :">
 - ⚡ Fun fact: Rictusempra
